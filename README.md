@@ -1,0 +1,1 @@
+# penerapan_chtgpt
